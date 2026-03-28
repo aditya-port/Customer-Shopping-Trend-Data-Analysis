@@ -14,7 +14,7 @@ Key Insights:
 
 👕 Clothing is the top revenue-generating category
 👥 Young Adult & Middle-aged segments drive most sales
-❌ 73% customers are non-subscribers → huge opportunity
+❌ 73% customers are non-subscribers → huge opportunity to increase subscription
 💸 Discounts increase conversions but not always revenue
 🔁 Repeat buyers are more likely to subscribe
 
